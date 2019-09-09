@@ -1,2 +1,2 @@
 # HTML
-Html and CSS makes me want to kill myself 💀
+Html and CSS makes me want to die 💀
